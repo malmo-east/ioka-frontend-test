@@ -9,7 +9,7 @@
 - [Procopiuc Vitalie](https://www.linkedin.com/in/vitalie-procopiuc-74b825165/)
 
 
-## Чосов затрачено
+## Часов затрачено
 
 11 часов 37 минут
 
